@@ -7,7 +7,7 @@
 <br>$\textsf{\color{red}{呆100万年,白吃白喝,任意,干扰人/控制人/搞破坏/偷人血肉,不会被杀死。}}$
 <br>大家看,这种观念,怎么办？。
 <br>
-<br>![IMG_ILL_01](https://github.com/user-attachments/assets/c1e222ed-e2af-44b1-98ee-b25fb431fd81)
+<br><img src="https://github.com/user-attachments/assets/c1e222ed-e2af-44b1-98ee-b25fb431fd81" alt="IMG_ILL_01">
 <br>
 <br>[天眼通],不是有文化的人用的。
 <br>$\textsf{\color{red}{[天眼通],是[死人用]的,[鬼魂用]的。}}$
