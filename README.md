@@ -7,6 +7,7 @@
 <br>$\textsf{\color{red}{呆100万年,白吃白喝,任意,干扰人/控制人/搞破坏/偷人血肉,不会被杀死。}}$
 <br>大家看,这种观念,怎么办？。
 <br>
+<br>开/关心门,鬼口咬心门;
 <br>坏附体鬼男偷气图：(偷人气,变异人类思想/偷鬼气,变异鬼魂心声思想)
 <br><img src="https://github.com/user-attachments/assets/c1e222ed-e2af-44b1-98ee-b25fb431fd81" alt="IMG_ILL_01">
 <br>
